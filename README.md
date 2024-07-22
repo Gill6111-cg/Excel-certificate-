@@ -1,4 +1,4 @@
-This certificate means alots to me because from this 
+This certificate means alots for me because from this 
 I have learn new things that I do not know before 
 From this i learns new things about excel like how to arrange data in excel 
 I learn how to sum the whole range of data in the excel and how to trim the data in excel 
